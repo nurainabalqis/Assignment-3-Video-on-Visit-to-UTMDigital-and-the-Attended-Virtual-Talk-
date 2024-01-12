@@ -1,3 +1,5 @@
+![visittoutmdigitalcandycane](https://github.com/nurainabalqis/E-portfolio/assets/148413115/e4c4dda0-9da9-461c-84b7-57fc66c3d90e)
+
 # Reflection
 ### Summarize what you have gained from this :
 Visiting to UTM Digital make me learned about the role of UTM Digital in shaping the future of the institution. My teammate and I have visited their digital facilities and experienced the innovative technologies and services they offer. By staying ahead of the curve, UTM Digital ensures that UTM remains relevant and competitive in the ever-changing digital landscape.
